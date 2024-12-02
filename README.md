@@ -1,3 +1,5 @@
+![Screenshot (372)](https://github.com/user-attachments/assets/f534f9d4-9925-4a44-bfea-4097399a9694)
+
 # SkillBridge  
 **Empower Your Career with AI**  
 
